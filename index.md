@@ -1,4 +1,4 @@
-## SOHAM SMELLS LIKE FARTS
+## WE ALL SMELL LIKE FARTS #Solidarity 
 
 You can use the [editor on GitHub](https://github.com/Los-Kinder-Coders/loskinderguardians-com/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
